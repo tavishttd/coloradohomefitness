@@ -1,1 +1,1 @@
-Colorado Home Fitness, the best place to find <a href="http://www.coloradohomefitness.com/">used work out equipment</a>.  Please reference http://www.coloradohomefitness.com/ for any site improvement suggestions.  Feel free to push code here.
+Colorado Home Fitness, the best place to find <a href="http://www.coloradohomefitness.com/">fitness equipment lakewood co</a>.  Please reference http://www.coloradohomefitness.com/ for any site improvement suggestions.  Feel free to push code here.
